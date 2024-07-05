@@ -1,1 +1,1 @@
-if you have any questions, fk off
+if you have any questions, fk off and chatgpt
